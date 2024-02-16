@@ -1,3 +1,5 @@
+# Xvirus ( Nexus ) ( exitscam ) ( skid )
+
 How a nice name would say "You stupid fucking skid.. mhhfm~... you don't know how to code for shit... ah~"
 
 # Some funny stuff 
